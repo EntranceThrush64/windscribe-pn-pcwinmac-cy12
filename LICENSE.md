@@ -1,4 +1,4 @@
-# 
+# Gratuito Windscribe VPN extensiones para Mac OS | Élite Windscribe VPN extensiones para PC Windows. Con interruptor de apagado y herencia de contraseñas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
